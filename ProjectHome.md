@@ -1,0 +1,1 @@
+korean synonym and antonym dictionary
